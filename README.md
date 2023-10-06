@@ -11,4 +11,4 @@
 
 • provided key insights that a business may use it to understand where they are lacking and what they must improve on.
 
-• pdf link : https://drive.google.com/drive/folders/13BucpkMN8E5_PYqOXw-ljyCO2b6EyxaL
+• pdf link : https://drive.google.com/file/d/13ZtN2QikQxlKADCqZskyFZzcIEBCqmu7/view?usp=sharing
